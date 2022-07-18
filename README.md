@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Hitrestart01
+- 👀 I’m interested in specifically gameing, but im open to joining any project that's available. The more experience I can get, the better.
+- 🌱 I’m currently in school for a CSC degree
+- 💞️ I’m looking to collaborate on anything and everything
+- 📫 How to reach me 
+- 
+- kevin.zwart85@gmail.com
